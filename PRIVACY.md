@@ -1,4 +1,6 @@
-# プライバシーポリシー / Privacy Policy
+# SimpleThetaShot プライバシーポリシー / Privacy Policy
+
+[日本語](#日本語) | [English](#english)
 
 **最終更新日 / Last Updated: 2026-03-29**
 
